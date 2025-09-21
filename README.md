@@ -14,3 +14,4 @@ I'm ftm and primarly use it/its and they/them pronouns - aswell as any similar t
 I most likely 100% have GAD and possibly social anxiety which affects the way I interact with people. I usually never approach first and when I do I'd appreciate if you treat me with kindness. I'm almost always awkward at the start of any friendships however I will warm up eventually if I feel safe with you. 
 
 
+
