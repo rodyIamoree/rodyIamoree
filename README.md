@@ -4,7 +4,7 @@
 <h1 align="center">Check rentry 4 more info</h1>
 
 
-First of all, I have an obsession with making rentries, so expect tons of rentry remaking. I don't think my rentry will ever stay the same.. 
+I have an obsession with making rentries, so expect tons of rentry remaking. I don't think my rentry will ever stay the same.. 
 
 
  <h1 align="center">Byi</h1>
