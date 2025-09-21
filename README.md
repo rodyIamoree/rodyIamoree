@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/fijbd8.jpg" alt="Image" width="230" height="230">
 
-<text align= "center">
+<h1 align= "center"></h1>
 <font size="4">Please check rentry aswell, for more info.</font>
 
 First of all, I have an obsession with making rentries, so expect tons of rentry remaking. I don't think my rentry will ever stay the same.. 
