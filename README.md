@@ -1,15 +1,13 @@
 <p align="center">
 <img src="https://files.catbox.moe/fijbd8.jpg" alt="Image" width="230" height="230">
 
-<h1 align= "center"></h1>
-<font size="4">Please check rentry aswell, for more info.</font>
+<h1 align="center">Check rentry 4 more info</h1>
 
 
 First of all, I have an obsession with making rentries, so expect tons of rentry remaking. I don't think my rentry will ever stay the same.. 
 
 
- <h1 align= "center"></h1>
-<font size="4">Byi.</font>
+ <h1 align="center">Byi</h1>
 
 I'm ftm and primarly use it/its and they/them pronouns - aswell as any similar to these - please ask beforehand if you can use 'em on me! When it comes to he/him I'd prefer if you'd don't overuse them on me. she/her, any feminine terms are a big no.
 
