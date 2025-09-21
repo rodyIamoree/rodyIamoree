@@ -8,7 +8,8 @@
 First of all, I have an obsession with making rentries, so expect tons of rentry remaking. I don't think my rentry will ever stay the same.. 
 
 
- <h1 align="center">Byi</h1>
+ <h1 align= "center"></h1>
+<font size="4">Byi.</font>
 
 I'm ftm and primarly use it/its and they/them pronouns - aswell as any similar to these - please ask beforehand if you can use 'em on me! When it comes to he/him I'd prefer if you'd don't overuse them on me. she/her, any feminine terms are a big no.
 
