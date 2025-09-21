@@ -7,3 +7,5 @@ First of all, I have an obsession with making rentries, so expect tons of rentry
 
 
  <h1 align="center">Byi</h1>
+
+I'm ftm and primarly use it/its and they/them pronouns - aswell as any similar to these - please ask beforehand if you can use 'em on me! When it comes to he/him I'd prefer if you'd don't overuse them on me. she/her, any feminine terms are a big no.
