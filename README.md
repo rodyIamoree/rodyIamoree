@@ -1,4 +1,4 @@
 <p align="center">
-<img src="https://files.catbox.moe/nbuqau.jpg" alt="Image" width="230" height="230">
+<img src="https://files.catbox.moe/02g5ki.png" alt="Image" width="230" height="230">
 
 astro, rody lamoree, flippy irl! ೀ 🍦 ‧ ˚ 🥧 ⊹˚. ♡
