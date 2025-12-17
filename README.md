@@ -2,6 +2,6 @@
 <img src="https://files.catbox.moe/8nrjhp.png" alt="Image" width="230" height="230">
 
 
- ㅤㅤ ㅤhi, imㅤastroㅤrody lamoreeㅤflippy irl 
+ㅤㅤㅤㅤ hi astroㅤrody lamoreeㅤflippy irl 
 
 
