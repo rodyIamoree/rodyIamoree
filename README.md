@@ -1,6 +1,3 @@
 <p align="center">
-<img src="https://files.catbox.moe/8nrjhp.png" alt="Image" width="230" height="230">
-
-
-ㅤ ㅤㅤimㅤastroㅤrody lamoreeㅤflippyㅤirl
+<img src="https://files.catbox.moe/9obtmp.jpg" alt="Image" width="230" height="230">
 
